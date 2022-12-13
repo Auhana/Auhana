@@ -1,4 +1,4 @@
-![image0](https://user-images.githubusercontent.com/120312049/207323965-b8a63eeb-1f2d-4908-9c72-7a680abb9991.gif)
+![be5f68a8791d5c43bd2a87713ed0993c](https://user-images.githubusercontent.com/120312049/207324430-fec0a465-a5e7-483d-8ed7-685e5a0d9ec6.gif)
 -<!🌴 Hey, I’m @Auhana.
 -<!🍇 I’m a bit interested in learning coding, coding is more like my hobby! 
 -<!🎆 I'm not that professional, I like creating random websites in my own imagination.
