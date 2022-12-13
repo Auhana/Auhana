@@ -1,4 +1,4 @@
-![cherry blossom ❀ _ via Tumblr on We Heart It](https://user-images.githubusercontent.com/120312049/207319571-09818193-c90b-43e3-91a8-41d3b2ca01b7.gif)
+![image0](https://user-images.githubusercontent.com/120312049/207323965-b8a63eeb-1f2d-4908-9c72-7a680abb9991.gif)
 -<!🌴 Hey, I’m @Auhana.
 -<!🍇 I’m a bit interested in learning coding, coding is more like my hobby! 
 -<!🎆 I'm not that professional, I like creating random websites in my own imagination.
